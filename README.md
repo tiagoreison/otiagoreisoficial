@@ -7,8 +7,7 @@ agregar valor na vida das pessoas que me cercam, pois somos sempre exemplos, sej
 negativo. Um dos meus objetivos no momento, é ter experiência no mercado de trabalho, para assim 
 me qualificar ainda mais e crescer juntamente com a empresa. 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
+- 📫 tiagoreis.hd@gmail.com
 <!---
 otiagoreisoficial/otiagoreisoficial is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
